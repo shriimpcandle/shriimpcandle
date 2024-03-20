@@ -23,6 +23,7 @@ check out my  <a href="https://linktr.ee/partynoob">linktr.ee</a> for my rentry 
 
   <p align="center">
 I'm 98% in the phighting area , usually sword, medkit, rainbeau, or valk but that doesn't mean i'm always them when I hop on ponytown lol <br/>
+  I crown back! :D<br/>
 I hide freely, if you make me uncomfortable don't blame me for hiding you <br/>
 I respond late to whispers or interactions! Please be patient with me. <br/>
 
