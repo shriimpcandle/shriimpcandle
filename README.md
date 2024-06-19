@@ -16,16 +16,17 @@ check out my  <a href="https://linktr.ee/partynoob">linktr.ee</a> for my rentry 
  <b>ponytown name tags + extra!</b> <img src="https://64.media.tumblr.com/b4b96597e74ad6b6c7c16df76aed7350/65cbae88d830cf89-58/s75x75_c1/9ccca80b0dc065bc4232e0e324de4a1161c0892e.gifv">
 
 <p align="center">
-<b>cuddle/hide friendly</b> / feel free to cuddle or hide behind me if c+h is in my name, it's very much appreciated if you do so :]!<br/>
-<b>whisper to interact</b> / I'm usually off tab or working on something else so it's best if you whisper to me so that I may notice it quicker<br/>
-<b>inspo is okay</b> / please don't directly copy my skins! slight inspo is okay and it's appreciated if you ask first before doing so <br/>
-<b>do not interact (unless close) </b> / if I have this in my name, it's pretty self explanatory. i'm just not in a good mood :'D <br/>
+<b>cuddle/hide friendly</b> / feel free to cuddle or hide behind me if c+h is in my name, it's very much appreciated if you do so!<br/>
+<b>whisper to interact</b> / I'm usually off tab or working on something else so it's best if you whisper to me so that I may notice it quicker. <br/>
+<b>inspo is okay</b> / please don't directly copy my skins! slight inspo is okay and it's appreciated if you ask first before doing so! <br/>
+<b>do not interact (unless close) </b> / if I have this in my name, it's pretty self explanatory. i'm just not in a good mood <br/>
 
   <p align="center">
-I'm 98% in the phighting area , usually sword, medkit, rainbeau, or valk but that doesn't mean i'm always them when I hop on ponytown lol <br/>
-  I crown back! :D<br/>
-I hide freely, if you make me uncomfortable don't blame me for hiding you <br/>
+I'm 98% in the phighting area , usually as medkit/bugkit, but that doesn't mean i'm always them when I hop on ponytown <br/>
+I crown back! <br/>
+I hide freely, if you make me uncomfortable don't blame me for hiding you. <br/>
 I respond late to whispers or interactions! Please be patient with me. <br/>
+Please also refrain from making any flirtatious gestures around me (kissing, flirting, etc.) unless you're my partner or a very close friend. <br/>
 
 <p align="center">
 <img src="https://64.media.tumblr.com/13ba85bc92ef098b48090dc895c25d23/65cbae88d830cf89-0d/s250x400/509b3b889d9249ee18679c10b63bd7590bf10764.gifv">
