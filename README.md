@@ -5,7 +5,7 @@
 <img src="https://i.imgur.com/bktkXiv.png">
 
 <p align="center">
-<b>medkit</b> / <i>med</i> + <a href="https://en.pronouns.page/@medicalattention">more</a> <img src="https://i.imgur.com/syITbbO.png"> they/<b>any</b>  no pref.<br/>
+<b>medkit</b> / <i>med</i> + <a href="https://pronouns.cc/@medicalmalpractice">more</a> <img src="https://i.imgur.com/syITbbO.png"> they/<b>any</b>  no pref.<br/>
 <img src="https://64.media.tumblr.com/11ca4caa4d3d1de48933395e66c2de08/65cbae88d830cf89-ea/s75x75_c1/80495fd49ae3fa2d47fda074fced39423c6b52f3.gifv"> genderfluid <b>aro</b><i>ace</i> . <img src="https://i.imgur.com/b0DNpy1.png"> roblox, studio investigrave, alnst <br/>
 rentry and linktree are wips . . .<br/>
 
